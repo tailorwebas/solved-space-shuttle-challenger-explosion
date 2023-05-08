@@ -1,0 +1,5 @@
+Download Link: https://assignmentchef.com/product/solved-space-shuttle-challenger-explosion
+<br>
+Primary Task Response: Within the Discussion Board area, write 400-600 words that respond to the following questions with your thoughts, ideas, and comments. This will be the foundation for future discussions by your classmates. Be substantive and clear, and use examples to reinforce your ideas.
+
+Review the video link on the <u>Space Shuttle Challenger explosion</u>. https://www.youtube.com/watch?v=mG8BPB_oPlg.  For this discussion board, what lessons can be learned regarding project management leadership? Risk management? There is a lot of research regarding this tragedy, so be sure that you use additional (minimum of 2) external cited research from both the Challenger investigation and Project/Risk Management to support your considerations
